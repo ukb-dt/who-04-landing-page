@@ -4,7 +4,7 @@ I’ll speak plainly, wandering methodically but with fresh curiosity, grounded 
 
 ---
 
-## **THE PENTADIC MODAL — Your Full AI-Reality Frame**
+## **THE PENTADIC MODAL — Your Full AI-Reality [Frame](https://ukb-dt.github.io/who-04-slides/)**
 
 ### **I. World**
 
